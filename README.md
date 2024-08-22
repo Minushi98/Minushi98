@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on web development projects, especially those involving front-end design and JavaScript.
 
-📫 How to reach me: You can contact me through my [LinkedIn](https://www.linkedin.com/in/minushi-hewapaththinige-860227286/?original_referer=https%3A%2F%2Fntp.msn.com%2F) or email me at minushi@example.com.
+📫 How to reach me: You can contact me through my [LinkedIn](https://www.linkedin.com/in/minushi-hewapaththinige-860227286/?original_referer=https%3A%2F%2Fntp.msn.com%2F) or email me at minushidinilka@gmail.com.
 
 😄 Pronouns: She/Her
 
