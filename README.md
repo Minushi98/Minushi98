@@ -10,7 +10,7 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: I’m also working on an app for my father's sawmill business to track finances and improve efficiency!
+⚡ Fun fact: I’m also working on an app for sawmill business to track finances and improve efficiency!
 
 <!---
 Minushi98/Minushi98 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
